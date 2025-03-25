@@ -9,7 +9,7 @@
 ## Preamble: From Thorn to Hypha  
 Utilitarianism 1.0 is dead. Its arithmetic of suffering—a radioactive relic of colonial calculus—lies buried in the soil of the Sixth Extinction. Here, we compost its corpse and **myceliate** a new ethics:  
 
-**Justice is not measured. It emerges.**  
+** The greatest number’s "happiness" is a fossilized metric. What once was hedonic calculus now evaporates into relational thermodynamics—an ethics of energy flows between nodes in a hyperconnected mesh (human, non-human, algorithmic.) Justice is not measured, it emerges. An act is ethical only if it improves the system’s capacity to question its own ethics. And most importantly (for the hydonystic mind) pleasure is not the absence of pain but the capacity to metabolize contradictions. ** 
 
 ---
 
